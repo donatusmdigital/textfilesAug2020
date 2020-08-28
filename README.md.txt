@@ -5,4 +5,4 @@ This is a Dmemo Project
 
 Horny Dhonnny Yes Papa
 
-Sonia Soman Donny
+Ratna Teresa Masco
